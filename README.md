@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @ANIKETHPAWAR
-- 👀 I’m interested in 
-- 🌱 I’m currently learning python 
-- 💞️ I’m looking to collaborate on python projects
+- Web D & Dsa
 - 📫 How to reach me just mail at anikethpawar05@gmail.com
 
 <!---
