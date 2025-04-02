@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ANIKETHPAWAR
-- Web D & Dsa
+- Learning and Building things
 - 📫 How to reach me just mail at anikethpawar05@gmail.com
 
 <!---
