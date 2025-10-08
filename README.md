@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **anikethpawar.dev@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1CGdrJaebTfRPRs_RhA4oa6xxOCsrbYUO/view?usp=sharing](https://drive.google.com/file/d/1CGdrJaebTfRPRs_RhA4oa6xxOCsrbYUO/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ZnB8pwQxh892CDah_8uA-gzS2XI1jRrN/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
